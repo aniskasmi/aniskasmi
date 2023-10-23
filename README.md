@@ -6,4 +6,4 @@ I am a developer, and entrepreneur, for several years in the digital world start
 
 ## Useful links 🌎: 
 - Profile <a href="https://www.linkedin.com/in/%F0%9F%92%BB-anis-kasmi-661668138/">LinkedIn</a> or <a href="https://aniskasmi.com/">aniskasmi.com</a> 📹 ✍🏾
-- My Agency <a href="https://www.skyreka.com/"> Skyreja</a> 🚀
+- My Agency <a href="https://www.skyreka.com/"> Skyreka</a> 🚀
